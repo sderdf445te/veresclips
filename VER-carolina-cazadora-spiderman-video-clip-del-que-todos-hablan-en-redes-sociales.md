@@ -1,7 +1,7 @@
 Carolina Cazadora Spiderman video: este es el clip del que todos hablan en redes sociales
 ¿Ya viste el 'Carolina Cazadora Spiderman video'?, ¿tiene curiosidad en este metraje que causa revuelo en Telegram y X?, aquí respondemos todas tus preguntas.
 
-📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+📺📱👉◄◄🔴  https://tinurl.com/5n6bjbnr
 
 📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
